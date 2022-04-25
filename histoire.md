@@ -10,3 +10,4 @@ menu 280.
 Je fis demi-tour puis,
 je repartis en trombe vers le commissariat.
 Et là je decouvris,
+que j'étais milionaire en CRO,
